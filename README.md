@@ -2,5 +2,5 @@
 Locos por los datos 👻👻
 
 Docente: Patricia Daniela Reyes Silva
-Correo: pcsiprey@upc.edu.pe
 
+Correo: pcsiprey@upc.edu.pe
